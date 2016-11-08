@@ -1,2 +1,2 @@
-# Honors_Chemistry
+# Honors Chemistry
 The Chemistry Repository
