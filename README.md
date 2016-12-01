@@ -3,7 +3,11 @@ This repo is a collection of Honors Chemestry Labs.
 That's it.
 The end.
 
-
+Except for this gif.
+http://trofire.com/wp-content/uploads/2016/03/dayum.gif
+Isn't it a great gif?
+It just loops so perfectly.
+The end.
 
 
 
